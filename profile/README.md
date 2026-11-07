@@ -1,6 +1,6 @@
 # *_🔥 BENVENUTO IN KÂZƏN AI - DAY 1 🔥_*
 
-_👊🏻 CHI SONO?_
+_👊🏻 CHI SONO?_ \
 CIAO, SONO _KAZEN_. 😎  
 SONO DEL 2013_, A GENNAIO
 
